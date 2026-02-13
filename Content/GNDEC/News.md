@@ -4,7 +4,8 @@
 
 ###### |🕒 Published on June 25, 2024
 
-![HSR](Images/img152024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/df9eda23ac9faa031caadb8770b8cda01c6ce7a5/Content/GNDEC/Images/1.jpeg) ![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/df9eda23ac9faa031caadb8770b8cda01c6ce7a5/Content/GNDEC/Images/1or.jpeg)
+
 
 <p align=justify>
 Guru Nanak Dev Engineering College, Gill Park Ludhiana, recently hosted a three-day workshop titled “Artificial Intelligence and Punjabi Language: Recent Trends and Challenges,” sponsored by the All India Council for Technical Education (AICTE) under the VAANI scheme. The workshop aimed to equip participants with a thorough understanding of AI and its applications in the Punjabi language.
@@ -22,7 +23,7 @@ Principal Dr. Sehijpal Singh while appreciating this new initiatives of coordina
 
 ###### |🕒 Published on August 15, 2024
 
-![HSR](Images/img112024.jpg)
+![HSR](Images/2.jpg)
 
 <p align=justify>
 Guru Nanak Dev Engineering College, Ludhiana organised Anti-Ragging Day and Nasha Mukt Abhiyaan today in the campus. As per direction from Ministry of Social Justice and Empowerment, Government of India more than 650 students and eleven faculty members took the pledge against drug abuse. 
