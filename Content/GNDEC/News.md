@@ -23,7 +23,8 @@ Principal Dr. Sehijpal Singh while appreciating this new initiatives of coordina
 
 ###### |🕒 Published on August 15, 2024
 
-![HSR](Images/2.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/df9eda23ac9faa031caadb8770b8cda01c6ce7a5/Content/GNDEC/Images/2.jpeg) 
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/2or.jpeg)
 
 <p align=justify>
 Guru Nanak Dev Engineering College, Ludhiana organised Anti-Ragging Day and Nasha Mukt Abhiyaan today in the campus. As per direction from Ministry of Social Justice and Empowerment, Government of India more than 650 students and eleven faculty members took the pledge against drug abuse. 
@@ -39,7 +40,8 @@ Dr. Sehijpal Singh, Principal, GNDEC said that college campus is a ragging free 
 
 ###### |🕒 Published on Sep 21, 2024
 
-![HSR](Images/img122024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/3.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/3or.jpeg)
 
 <p align=justify>
 Guru Nanak Dev Engineering College (GNDEC) is proud to announce that two of its esteemed faculty members have been recognized in Stanford University's prestigious list of the World's Top 2% Scientists. Dr. Raman Kumar Sehgal from the Mechanical and Production Engineering department has received this honor for the third consecutive year, while Dr. Sita Rani from Computer Science and Engineering has been acknowledged for 2024. Their relentless commitment to research and innovation has elevated the standards of their respective fields and significantly contributed to the global scientific landscape.
@@ -53,8 +55,8 @@ Dr. Sehijpal Singh, Principal of GNDEC, expressed that this achievement is expec
 
 ###### |🕒 Published on October 1, 2024
 
-![HSR](Images/img132024.jpg)
-
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/4.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/4or.jpeg)
 <p align=justify>
  Guru Nanak Dev Engineering College (GNDEC), Gill Park, Ludhiana,  hosted the IKGPTU Inter-College Cycling Competition for men and women at the PAU Cycling Velodrome on 1 october 2024. This prestigious event witnessed participation from top cyclists representing seven colleges affiliated with I. K. Gujral Punjab Technical University(IKGPTU), Kapurthala showcasing their talent, endurance, and competitive spirit.
 
@@ -86,7 +88,8 @@ Best Cyclist (Women): Jasnoor Kaur and Anu Grewal
 
 ###### |🕒 Published on February 1, 2024
 
-![HSR](Images/img142024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/5.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/5or.jpeg)
 
 <p align=justify>
  Guru Nanak Dev Engineering College (GNDEC), Gill Road Ludhiana, welcomed the much-anticipated inter-school extravaganza, GNE'S APEX 2024, on October 25th, 2024. Organized by the Causmic Club under the Department of Applied Science, this event paid homage to the legendary leadership and humanitarian contributions of Mr. Ratan N. Tata. The event witnessed enthusiastic participation from 30 schools, creating an atmosphere filled with excitement and camaraderie.
@@ -115,7 +118,8 @@ ___ stood as the second runner-up, winning Rs. 5,000.
 ###### |🕒 Published on November 20,2023
 
 
-![HSR](Images/img62024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/6.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/6or.jpeg)
 
 <p align=justify>
 Guru Nanak Dev Engineering College (GNDEC), Gill Park, Ludhiana, recently hosted its Annual Alumni Meet, bringing together graduates from 1960 to the 2022 batch. Alumni from India, as well as from U.S., Canada, Australia, and the U.K., gathered to reconnect and contribute to the college’s development, making this a truly global event. The program began with a group of current students reciting shabad kirtan and setting a warm and nostalgic tone for the day.
@@ -137,7 +141,8 @@ The GNDEC Annual Alumni Meet 2024 was a day of reconnecting, recognition, and re
 
 ###### |🕒 Published on November 18,2023
 
-![HSR](Images/img72024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/7.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/7or.jpeg)
 
 <p align=justify>
 Guru Nanak Dev Engineering College (GNDEC), Ludhiana, conducted an Industry-Institute Meet, facilitated by the Department of Mechanical & Production Engineering and the Industrial Relations Cell. The event aimed to foster collaboration between academia and industry, ensuring students are equipped with industry-relevant skills to meet evolving market demands.
@@ -154,7 +159,9 @@ Prof. J.S. Grewal extended a warm welcome to the participants. Dr. Jatinder Kapo
 
 ###### |🕒 Published on October 28, 2023
 
-![HSR](Images/img172024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/8.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/8or.jpeg)
+
 <p align=justify>
 Guru Nanak Dev Engineering College (GNDEC), Ludhiana, recently commemorated the Golden Jubilee of its 1974 batch in a grand celebration held on campus. The event witnessed the enthusiastic participation of over 60 alumni, accompanied by their families, who travelled from across India and countries like Canada, Australia, and the USA to reconnect and celebrate this milestone. The alumni meet started with ardass at college Gurdwara sahib.
 On this special occasion, a souvenir dedicated to the 1974 batch was released, showcasing the profiles and achievements of the batch. The management members and Principal of the college honoured all the Genconians with mementos.
@@ -173,7 +180,8 @@ the organizing committee, which included the former CMD of the Haryana Electrici
 ###### |🕒 Published on October 21,2023
 
 
-![HSR](Images/img82024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/9.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/9or.jpeg)
 
 <p align=justify>
 Guru Nanak Dev Engineering College (GNDEC) Ludhiana team Codex comprising of Chetan Kashyap, Chetan Sharma, Deepak Parkash, Divyanshu Bhatt and Gurdit Singh from Computer Applications Department and Divanshi Goyal from Computer Science Department won the prestigious national competition 'Smart India Hackathon 2024'. The grand finale of the event was held recently at SKCET Coimbatore. The team worked on the problem of creating an  “Online chat bot ticketing system” given by the Ministry of Cultural Affairs GOI. The challenge was to develop a chat bot, which would be fully based on  AI and ML. Prof. Neha accompanied the students as Mentor faculty. Giving details of the event, Dr. Arvind Dhingra, SPOC, SIH 2024 said that more than 57000 teams participated in the event. Every year, various Government departments list their problems for finding novel solutions both in software and hardware categories. The college had provided necessary platform and exposure to prepare for the grand event by holding two hackathons in house. Prof. J.S. Saini, HOD, Computer Applications congratulated the team for winning the accolades at national level. The team has won Rs.50000/- as cash prize. Dr. Sehijpal Singh, Principal appreciated the efforts of the Technical Activity Committee of the college for preparing the students for national level events and assured  all support for the students for such events.
@@ -186,7 +194,9 @@ Guru Nanak Dev Engineering College (GNDEC) Ludhiana team Codex comprising of Che
 
 ###### |🕒 Published on October 13, 2023
 
-![HSR](Images/img162024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/10.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/10or.jpeg)
+
 <p align=justify>
  The 1994-1998 batch of Guru Nanak Dev Engineering College, Ludhiana, celebrated the Silver Jubilee Reunion of their batch with great enthusiasm and nostalgia.  Principal, Dr. Sehijpal Singh in his welcome address, appreciate the contributions of alumni in the society and encouraged them to maintain a continuous connect with their almamater._ The event was graced by several distinguished guests including S. Inderpal Singh, Director of Trust Affairs, former Principals Dr. R.P. Singh, Dr. S.B. Singh, Dr. Harkirat Kaur Grewal,  Former faculty members Sh. J.Parkash, Dr. Baljit Singh, Prof Gulab Singh Grewal and Er. Harinder Singh Dhillon, General Secretary of the GENCO Alumni Association, were also present to mark the occasion.
 
@@ -206,7 +216,8 @@ The Silver Jubilee Reunion was not just a celebration of 25 years but a testamen
 ###### |🕒 Published on JUNE 26,2023
 
 
-![HSR](Images/img22024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/11.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/11or.jpeg)
 
 <p align=justify>
 Guru Nanak Dev Engineering College (GNDEC) and Tata Steel have signed a Memorandum of Understanding (MoU) to establish an industry-supported laboratory on the college campus, showcasing best practices in structural designing and detailing of reinforced concrete buildings. The lab will feature a touch-and-feel facility; demo zones exhibiting rebar production and case studies, and offer structural design services to the public.The collaboration will enable the exchange of expertise, resources, and knowledge between GNDEC and Tata Steel, leading to the development of industry-relevant curriculum, joint research projects, and training programs for professionals. The MoU is Signed by Mr. Hemant Bhargava, Chief Sales Manager (North) of Tata steel, Mr. Pardeep Malhotra, Distributor, and Dr. Sehijpal Singh Principal. It aims to promote excellence in engineering education, foster industry-academia collaboration, and help builders select appropriate materials, reducing construction costs while meeting safety provisions outlined in BIS guidelines.
@@ -221,7 +232,8 @@ Dr Harvinder Singh Dean Research and Consultancy said "The laboratory will also 
 ###### |🕒 Published on June 6,2023
 
 
-![HSR](Images/img12024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/12.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/12or.jpeg)
 
 <p align=justify>
 The Entrepreneurship day was celebrated with full zeal and enthusiasm by IIC- Ecell of Guru Nanak Dev Engineering College, (GNDEC) Ludhiana.The event marked the rise of Indian startup eco-system. The live YouTube telecast of the function organized at National level in which Chairman AICTE and Vice Chairman AICTE were the main speakers. During the national level event. The theme of the event was 'the Golden Era of Startups'. The key note speaker was Dr. Munish Jindal, CEO Hover Robotix and MentorX. Welcoming the guests Dr. Arvind Dhingra, Convener, IIC & Ecell said that Indian startup scene had seen a tremendous rise in recent years showing an impressive increase in number of start ups and also in number of unicorns.  In his address, Dr. Jindal exhorted the students to dream big and work relentlessly to achieve the dream. He stressed that failures were opportunities to learn and re-correct our strategies to grow.  Dr. Narwant Singh Grewal, HOD(ECE) proposed the formal vote of thanks. 
@@ -235,7 +247,8 @@ Dr. Sehijpal Singh, Principal appreciated the efforts of IIC Ecell and stressed 
 
 ###### |🕒 Published on May 28,2023
 
-![HSR](Images/img32024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/13.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/13or.jpeg)
 
 <p align=justify>
 Guru Nanak Dev  Engineering College (GNDEC), Ludhiana, hosted a thought-provoking Panel Discussion on the critical issue of the "Diminishing Trend of STEM (Science, Technology, Engineering, and Mathematics) Courses". The event was held at the college auditorium and witnessed the participation of eminent academicians, administrators, and professionals from various fields.The discussion aimed to analyze the current trends affecting STEM education and explore innovative strategies to reignite interest in these vital fields, essential for national progress and global competitiveness. Principals alongwith science/math teachers of 70 schools participated in this discussion.
@@ -257,7 +270,8 @@ This event reaffirms GNDEC’s commitment to addressing educational challenges a
 
 ###### |🕒 Published on April 9,2023
 
-![HSR](Images/img42024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/14.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/14or.jpeg)
 
 <p align=justify>
 Guru Nanak Dev Engineering College (GNDEC) proudly announces the outstanding performance of its team Gensonic in BAJA 2025, organized by SAEINDIA. Competing against 48 top teams from across the nation, Team Gensonic secured 3rd position in the Sales category, 4th in the Cost category, and an impressive 17th position in the Endurance event. The competition was held at Pithampur, Indore, from January 9 to 12, 2025.
@@ -273,7 +287,8 @@ Dr. Sehijpal Singh extended his best wishes for the team’s future projects and
 
 ###### |🕒 Published on March 22, 2023
 
-![HSR](Images/img1024.jpg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/15.jpeg)
+![HSR](https://github.com/gpsnoor05/Newsletter_2025/blob/6896fc543c809c9f5274e64338c6c7333854cd3e/Content/GNDEC/Images/15or.jpeg)
 
 <p align=justify>
 The second day of the athletic meet at Guru Nanak Dev Engineering College began with great enthusiasm and passion from the students. On the second day of the sports meet, competitions including the 10000 meters, 3000 meters, 400 meters, 800 meters, hammer throw, discus throw, and rope climbing were organized. Both boys and girls participated in large numbers.
@@ -294,5 +309,5 @@ S. Iqbal Singh, Director of Nankana Sahib Education Trust, thanked and congratul
 **Student's Executive Members: Gurpuneet Singh(URN:2339611, ECE Branch) <br>
 (URN:,  Branch)**
 
-![HSR](Images/harman.jpg)
-![HSR](Images/chahat.jpg)
+![HSR]()
+![HSR]()
